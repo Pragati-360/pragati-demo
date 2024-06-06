@@ -1,2 +1,2 @@
 # pragati-demo
-author-pragati
+author-pragatii
